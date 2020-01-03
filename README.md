@@ -8,7 +8,7 @@ http://www.johnath.com/beep/ Stop it everyone.
 
 
 
-Poer powerful ERP Solution in the world 
+Most powerful Open Source ERP Solution in the world 
 
 The European Central Banks use it for free
 
